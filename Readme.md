@@ -1,2 +1,2 @@
-# 🙈 🙉 🙊 Bootstrap Blog
+# ❤ Bootstrap Blog
 
